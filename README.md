@@ -1,3 +1,6 @@
+プレイ動画：https://youtu.be/_PH-OWB1eLI
+
+
 Download the game executable from the following link
 
 https://www.dropbox.com/scl/fi/2pr43keo7b8m7bfgs64km/Rewind_Game_SourceOnly.zip?rlkey=loa1t3ms7jj8010j6apcwtpp9&st=w3y3heby&dl=0
